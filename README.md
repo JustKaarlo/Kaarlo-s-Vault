@@ -1,5 +1,5 @@
-_*Howdy-ho there, welcome to my little corner of the internet! \
-This is where I jot down all sorts of stuff!*_
+_Howdy-ho there, welcome to my little corner of the internet! \
+This is where I jot down all sorts of stuff!_
 
 ## Personal Blog
 I will be sharing my thoughts and opinions on different video games. \
