@@ -1,4 +1,3 @@
-# _*Kaarlo-s-Vault*_
 _*Howdy-ho there, welcome to my little corner of the internet! \
 This is where I jot down all sorts of stuff!*_
 
